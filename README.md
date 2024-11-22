@@ -2,7 +2,7 @@
 - 👀 I’m interested in Music, Videogames and tv Series
 - 🌱 I’m currently learning Languages
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me @rubber_.ball on instagram :D
 - 😄 Pronouns: He
 - ⚡ Fun fact: im the greatest guitarrist, bassist, drumer of all time 
 
